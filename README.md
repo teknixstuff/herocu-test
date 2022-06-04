@@ -1,1 +1,0 @@
-# herocu-test
